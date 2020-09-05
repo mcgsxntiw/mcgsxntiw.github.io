@@ -1,1 +1,0 @@
-# mcgsxntiw.github.io
